@@ -1,1 +1,0 @@
-# mathsnap1.github.io
